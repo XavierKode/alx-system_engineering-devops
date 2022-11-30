@@ -1,2 +1,4 @@
-Taking the next step doing hard things
+Taking the next step d
+doing hard things
+
 
